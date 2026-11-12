@@ -1,5 +1,5 @@
 # 💫 About Me:
-Yooo, Reyhan here guys just relax!<br><br>ZLATAN SAID:<br>"why you can be normal when you can be the best."
+Yooo, Reyhan here guys just relax!<br><br>ZLATAN SAID:<br>"why be normal when you can be the best."
 
 
 ## 🌐 Socials:
